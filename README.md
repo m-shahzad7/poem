@@ -4,7 +4,7 @@ In silence, dreams begin to soar,
 To places never seen before.
 
 Beneath the stars so calm and high,
-The moonlight paints the midnight sky.
+The moonlight paints the midnight ske
 A whisper floats on winds that roam,
 And every heart finds thoughts of home.
 
